@@ -8,6 +8,7 @@ _DNI UNDER 17_
 
 
 Moonjo and Daeho CL
+
 idrk what to write here but here's what i'm recently into:
 - Squid Game, Strangers from Hell, MLP, Deltarune, Steven Universe, Life is Strange 1 & 2
 
