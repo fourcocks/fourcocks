@@ -1,4 +1,5 @@
-# ![1000030462](https://github.com/user-attachments/assets/5f5cec97-d625-4c73-bf8d-bf161c2f9bce)    
+# ![tumblr_a8f1943a5ca4d823e5d973eaea60342c_2f197bb0_540](https://github.com/user-attachments/assets/428d7cca-58b2-4c0b-8269-119e48a24d56)
+
 *V!* ✧.* 19 ✧.* **he/they**  
 _DNI UNDER 17_
 
@@ -12,4 +13,5 @@ idrk what to write here but here's what i'm recently into:
 
   That's it for now im p sure
   
-![tumblr_1ff07f4236265c34caafc647107ec2d8_6feaae80_540](https://github.com/user-attachments/assets/8cb8474f-b249-4e0e-98b3-ef5cd104d61b)
+![tumblr_1ff07f4236265c34caafc647107ec2d8_6feaae80_540](https://github.com/user-attachments/assets/dc9a2203-47bf-4d62-8baf-ffa6c4059f47)
+
