@@ -7,7 +7,7 @@ _DNI UNDER 17_
 ✧.*𓆝 𓆟 𓆞 𓆝 𓆟✧.*𓆝 𓆟 𓆞 𓆝 𓆟✧.*𓆝 𓆟 𓆞 𓆝 𓆟✧.*𓆝 𓆟 𓆞 𓆝 𓆟✧.*𓆝 𓆟 𓆞 𓆝 𓆟✧. *
 
 
-I love moonjo and daeho sm <3
+Moonjo and Daeho CL
 idrk what to write here but here's what i'm recently into:
 - Squid Game, Strangers from Hell, MLP, Deltarune, Steven Universe, Life is Strange 1 & 2
 
