@@ -3,6 +3,7 @@
 *V!* ✧.* 19 ✧.* **he/they** 
 
 Dentist by day. Artist by obsession. I explore the boundaries of human nature— one scream, one masterpiece at a time.
+
 _DNI UNDER 17_
 
 
