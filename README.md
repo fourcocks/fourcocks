@@ -1,7 +1,7 @@
 PLSPLSPLS VISIT MY STRAWPAGE BYI !!!
 # ![tumblr_a8f1943a5ca4d823e5d973eaea60342c_2f197bb0_540](https://github.com/user-attachments/assets/428d7cca-58b2-4c0b-8269-119e48a24d56)
 
-*V!* ✧.* 29 ✧.* **she/he/they** 
+*V!* ✧.* 20 ✧.* **she/he/they** 
 
 Dentist by day. Artist by obsession. I explore the boundaries of human nature— 
 
