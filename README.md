@@ -3,15 +3,7 @@ PLSPLSPLS VISIT MY STRAWPAGE BYI !!!
 
 *V!* ✧.* 20 ✧.* **she/he/they** 
 
-Dentist by day. Artist by obsession. I explore the boundaries of human nature— 
-
-one scream, one masterpiece at a time.
-
 _DNI UNDER 17_
-
-
-✧.*𓆝 𓆟 𓆞 𓆝 𓆟✧.*𓆝 𓆟 𓆞 𓆝 𓆟✧.*𓆝 𓆟 𓆞 𓆝 𓆟✧.*𓆝 𓆟 𓆞 𓆝 𓆟✧.*𓆝 𓆟 𓆞 𓆝 𓆟✧. *
-
 
 CLs: Moonjo, Daeho, Sean, Yoshiki & Quackity :P
 
@@ -19,6 +11,8 @@ idrk what to write here but here's what i'm recently into:
 - Squid Game, Strangers from Hell, MLP, Deltarune, South Park, Life is Strange 1 & 2, TSHD
 
   That's it for now im p sure
+  
+✧.*𓆝 𓆟 𓆞 𓆝 𓆟✧.*𓆝 𓆟 𓆞 𓆝 𓆟✧.*𓆝 𓆟 𓆞 𓆝 𓆟✧.*𓆝 𓆟 𓆞 𓆝 𓆟✧.*𓆝 𓆟 𓆞 𓆝 𓆟✧. *
   
 ![tumblr_1ff07f4236265c34caafc647107ec2d8_6feaae80_540](https://github.com/user-attachments/assets/dc9a2203-47bf-4d62-8baf-ffa6c4059f47)
 
