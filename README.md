@@ -7,7 +7,7 @@ PLSPLSPLS VISIT MY STRAWPAGE BYI !!!
 _DNI UNDER 17_
 
 CLs: Cal, Sean, "Hikaru" & Q :P
-
+NOT TCC!!!! TCC DNI
 idrk what to write here but here's what i'm recently into:
 - ZD, Strangers from Hell, MLP, Deltarune, South Park, Life is Strange 1 & 2, TSHD
 
